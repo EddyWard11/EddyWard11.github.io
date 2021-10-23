@@ -1,1 +1,1 @@
-# EddyWard11.github.io
+# EddyWard.github.io
